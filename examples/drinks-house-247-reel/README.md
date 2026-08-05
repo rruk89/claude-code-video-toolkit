@@ -12,7 +12,7 @@ Five scenes over a dark-and-gold luxe look with rising champagne bubbles:
 2. **Speed** — animated clock, 30–45 min same-day delivery across London
 3. **Range** — 1500+ premium drinks: champagne, wine, spirits, beer
 4. **Service** — open 24/7, no minimum order, gift wrapping, UK-wide next-day
-5. **CTA** — drinkshouse247.co.uk · 0203 393 8809 · 18+ drink responsibly
+5. **CTA** — drinkshouse247.co.uk · +44 20 3488 3266 · 18+ drink responsibly
 
 ## Run
 
